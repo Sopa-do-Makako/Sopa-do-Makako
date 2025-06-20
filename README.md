@@ -1,14 +1,8 @@
 
 ##  ![Ratón bailando](rat-dance.gif) Hola, mi nombre es Pussy Destroyer 👋
-### Estudiante de ingeniería Civil Industrial de la Gloriosa Universidad Tecnológica Metropolitana 
+### Estudiante de ingeniería Civil Industrial 
 
-He llegado a este punto de la carrera sin saber ni mierda. Ahora me dedico a copiar todo lo que veo sin asco. Toda base otorgada por esta institución ha servido para moldearme como un antisemita y antiveneko, dando forma a un peligro existente para esta sociedad progresista woke.
 
-Sobre mí: he realizado mi práctica inductiva en un lugar sumamente tóxico, donde me dediqué a agarrarme las weas todo el tiempo que pude. El acceso a información vital de esa empresa me hace cuestionar si soy mala persona o no, porque no he realizado ningún fraude o extorsión que pudiese llevar a cabo con la información que poseo.
-
-En fin, me apasionan los deportes pese a no tener el físico para realizarlos. Dentro de los deportes que me gustan están el fútbol, el tenis y el ciclismo, pero como mencioné anteriormente, no practico nada.
-
-Ahora mismo me encuentro en búsqueda de una práctica profesional para poder egresar de esta mierda de universidad, cuya especialidad que otorga es una mierda.
 
 <!--
 **Sopa-do-Makako/Sopa-do-Makako** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
